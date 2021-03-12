@@ -9,7 +9,7 @@
 * Chorus : Tabitha Kokilananda and Panithi Lertudomthana
 * Executive Supervisor : Vudtinun Bhirombhakdi
 * Executive Producer : Chodchapak Pholthanachod  
-ไม่ค่อยเเน่ใจ  
+*ไม่ค่อยเเน่ใจ  
 กับท่าทางการกระทำสีหน้าเธอที่เเสดงออก  
 บางทีก็คิดว่าใช่ เเต่บางทีก็ยังไม่ชัวร์  
 ไม่ค่อยมั่นใจ  
